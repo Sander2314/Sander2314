@@ -1,5 +1,4 @@
-### Hi there 👋
-
+Ola não torção para o corintinhas e um time ruim
 <!--
 **Sander2314/Sander2314** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
